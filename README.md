@@ -1,0 +1,2 @@
+# smkn1bangkinang
+fakhri
